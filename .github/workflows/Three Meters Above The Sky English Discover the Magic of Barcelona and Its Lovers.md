@@ -1,0 +1,31 @@
+
+ 
+# Three Meters Above The Sky: A Romantic Drama That Will Make You Fall in Love
+ 
+Three Meters Above The Sky (3 metros sobre el cielo) is a Spanish film based on the novel by Federico Moccia. It tells the story of Babi and Hugo, two young people from different worlds who fall in love despite their social differences. Babi is a rich girl who wants to find the love of her life, and Hugo is a rebellious guy who likes speed, violence and motorcycles. They both have two very different lives, but they are drawn to each other by a powerful attraction. Their relationship is passionate, intense and almost impossible, but it will change their lives forever.
+ 
+The film was directed by Fernando GonzÃ¡lez Molina and starred Mario Casas and MarÃ­a Valverde as the main couple. It was released in 2010 and became a huge box office success in Spain, breaking records and earning more than 10 million euros. It also received positive reviews from critics and audiences, who praised the chemistry between the actors, the soundtrack and the cinematography. The film was followed by a sequel, I Want You (Tengo ganas de ti), in 2012.
+ 
+**Download ✒ ✒ ✒ [https://t.co/D1x42PuFKv](https://t.co/D1x42PuFKv)**
+
+
+ 
+Three Meters Above The Sky is available to watch online on Apple TV[^1^] and YouTube[^2^]. It has English subtitles for those who do not speak Spanish. If you are looking for a romantic drama that will make you feel all kinds of emotions, you should give this film a try. You will not regret it!
+ 
+Three Meters Above The Sky English subtitles,  Three Meters Above The Sky English dubbed,  Three Meters Above The Sky English book,  Three Meters Above The Sky English trailer,  Three Meters Above The Sky English version,  Three Meters Above The Sky English full movie,  Three Meters Above The Sky English cast,  Three Meters Above The Sky English watch online,  Three Meters Above The Sky English pdf,  Three Meters Above The Sky English summary,  Three Meters Above The Sky English remake,  Three Meters Above The Sky English netflix,  Three Meters Above The Sky English download,  Three Meters Above The Sky English review,  Three Meters Above The Sky English soundtrack,  Three Meters Above The Sky English sequel,  Three Meters Above The Sky English quotes,  Three Meters Above The Sky English ending,  Three Meters Above The Sky English streaming,  Three Meters Above The Sky English novel,  Three Meters Above The Sky English author,  Three Meters Above The Sky English genre,  Three Meters Above The Sky English rating,  Three Meters Above The Sky English release date,  Three Meters Above The Sky English imdb,  Three Meters Above The Sky English plot,  Three Meters Above The Sky English characters,  Three Meters Above The Sky English movie online,  Three Meters Above The Sky English film series,  Three Meters Above The Sky English part 2,  Three Meters Above The Sky English part 3,  Three Meters Above The Sky English amazon prime,  Three Meters Above The Sky English audiobook,  Three Meters Above The Sky English analysis,  Three Meters Above The Sky English awards,  Three Meters Above The Sky English box office,  Three Meters Above The Sky English based on true story,  Three Meters Above The Sky English budget,  Three Meters Above The Sky English behind the scenes,  Three Meters Above The Sky English blu ray,  Three Meters Above The Sky English book series,  Three Meters Above The Sky English book pdf free download,  Three Meters Above The Sky English book summary in english ,  Three Meters Above The Sky English book review in english ,  Three Meters Above The Sky English book online free ,  Three Meters Above The Sky English book in english pdf ,  Three Meters Above The Sky English book vs movie ,  Three Meters Above The Sky English book quotes
+  
+The film is based on the first book of a trilogy by Federico Moccia, who also wrote the screenplay. The books have been translated into several languages and have sold millions of copies worldwide. They have also inspired other adaptations, such as an Italian film series and a Turkish TV series. The story explores the themes of love, friendship, family, social class, dreams and choices.
+ 
+The film features a talented cast of young actors who have become popular in Spain and abroad. Mario Casas and MarÃ­a Valverde have won several awards for their performances as Hugo and Babi, and have also starred in other films together, such as The Mule (2013) and Palm Trees in the Snow (2015). Ãlvaro Cervantes, Marina Salas, Nerea Camacho and Diego MartÃ­n are some of the other actors who play important roles in the film.
+ 
+The film also has a memorable soundtrack that includes songs by Spanish and international artists, such as L.A., Cecilia Krull, The X, Zahara, The Irrepressibles and Miley Cyrus. Some of the songs were specially composed for the film, such as "Something's Triggered" by Cecilia Krull and "Aunque tÃº no lo sepas" by Quique GonzÃ¡lez. The music adds to the emotion and atmosphere of the film.
+ 
+Three Meters Above The Sky is a film that will make you laugh, cry, smile and feel. It is a film that will touch your heart and make you believe in love. It is a film that you will not forget.
+  
+The film is set in Barcelona, a city that offers a beautiful and vibrant backdrop for the story. The film showcases some of the iconic landmarks of the city, such as the Sagrada Familia, the Park GÃ¼ell, the MontjuÃ¯c Castle and the Tibidabo Amusement Park. The film also captures the contrast between the different social environments of the characters, from the luxurious mansions and schools of Babi's world to the gritty streets and clubs of Hugo's world.
+ 
+The film is not only a love story, but also a coming-of-age story that explores the challenges and choices that young people face in their lives. The film portrays the struggles of Babi and Hugo to find their own identity and happiness, as well as the impact of their relationship on their families and friends. The film also deals with themes such as peer pressure, violence, drugs, sex and death.
+ 
+The film is a roller coaster of emotions that will make you laugh, cry, smile and feel. It is a film that will touch your heart and make you believe in love. It is a film that you will not forget.
+ 8cf37b1e13
+ 
